@@ -14,12 +14,7 @@ If you like what you see and want to thank me for it, you can always **donate me
 
 [![ko-fi](https://www.ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/F1F51HO0N)
 
-( (
-    ) )
-  ........
-  |      |]
-  \      /    
-   `----'
+☕ 
 
 Or you can become one of my beloved **Patrons**:
 
